@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **Network**
 
-- 📫 Email , T.me : **freakxray@proton.me , FreakXray.t.me**
+- 📫 Email , T.me : **freakxray@proton.me , https://t.me/FreakXRAY**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
